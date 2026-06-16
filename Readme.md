@@ -1,3 +1,9 @@
+show my project on : gradecalculator-alsqzajhutqxggg5keqxpk
+
+
+
+
+
 <img width="990" height="677" alt="Screenshot 2026-06-16 112843" src="https://github.com/user-attachments/assets/816f8cf6-9ed2-44e3-a7fc-961ec60696af" />
 
 
